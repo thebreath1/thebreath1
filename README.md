@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Flutter,Linux,Web**
 
-- ⚡ Fun fact **I'm an otaku**
+- ⚡ Fun fact **I'm Ferrari fan**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
